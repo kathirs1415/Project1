@@ -4,3 +4,4 @@
 - [Video 4](https://youtube.com/shorts/lI0UU4UV84Q?feature=share)
 - [Video 5](https://youtube.com/shorts/naZS3gFbONo)
 - [Video 6](https://youtube.com/shorts/CQocxzFCe8U)
+- [Video 7](https://youtube.com/shorts/24yszJm-jqU)
